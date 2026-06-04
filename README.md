@@ -1,2 +1,2 @@
 # sonicskye.co.za
-An eye in the sky
+Your sharp eye in the sky
